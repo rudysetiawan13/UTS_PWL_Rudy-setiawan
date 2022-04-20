@@ -1,1 +1,0 @@
-# UTS_PWL_Rudy-setiawan
